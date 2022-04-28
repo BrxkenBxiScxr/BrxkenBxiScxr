@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BrxkenBxiScxr
+- 👀 I’m interested in: Coding, Reading, I absolutely love gaming but spend most of my time on Art. :)
+- 🌱 I’m currently learning: How to code.
+- 💞️ I’m looking to collaborate on: Coding, or maybe just Art.
+- 📫 How to reach me: Atm I'm not sure
+- 💙 My Age/Gender/name: I am a 17 year old Native, My real name is Ethan but I prefer to go by "Willow" as friends have game me that nickname. I am also non-binary, so dont feel like you have misgendered me at any point :)
+- 🖤 Appearance: I have Light Blue eyes, but they tend to go from blue to a greenish blue and sometimes to grey/whitish as well. I have brown/black hair, I'm 5'5 and have an athletic build. I have a tattoo of a 3 leafed clover, that stands for "Love" "faith" and "hope" on my left hand.  
